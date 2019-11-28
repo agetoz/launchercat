@@ -7,8 +7,7 @@ Update V2 :
 - Untuk me-refresh cukup memakai sensor swipe down
 
 Untuk editing logo dan otomatisasi open web tanpa memasukkan alamat bisa request di :
-email : agetoz@yahoo.com
-hp : 083112006203
+email : agetoz@yahoo.com hp : 083112006203
 Free
 
-Donasi? Pulsa seikhlasnya aja.
+*Donasi? Pulsa seikhlasnya aja.
