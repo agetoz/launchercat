@@ -8,6 +8,7 @@ Update V2 :
 
 Untuk editing logo dan otomatisasi open web tanpa memasukkan alamat bisa request di :
 email : agetoz@yahoo.com
-Free
 
-*Donasi? Pulsa seikhlasnya aja.
+*Open Donasi :
+BSM Mandiri : 7137413978
+A/n : Giemza Bagus
