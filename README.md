@@ -10,4 +10,4 @@ Untuk editing logo dan otomatisasi open web tanpa memasukkan alamat bisa request
 email : agetoz@yahoo.com
 Free
 
-*Donasi? Pulsa seikhlasnya aja. (083112006203)
+*Donasi? Pulsa seikhlasnya aja.
